@@ -1,1 +1,1 @@
-Hey! I'm Alex. A Software Dev currently located in Copenhagen, Denmark.
+Hey! I'm Alex. A Software Dev currently located usually somewhere in Europe.
